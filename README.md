@@ -1,4 +1,4 @@
-# 💫 Sobre a PetMoure:
+# 🐾 Sobre a PetMoure:
 Olá!!! Somos uma empresa parceira do seu pet, venha nos conhecer mais 🐾💚<br><br>📈Missão: A PetMoure busca fornecer produtos de qualidade para o bem-estar para o seu melhor amigo<br><br>📌Visão: Trazer conforto e alegria para o seu pet a cada dia.<br><br>⚖️Valores:<br>Excelência<br>Sustentabilidade<br>Qualidade<br>Inovação
 
 
